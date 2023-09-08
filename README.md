@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Mushraf666
 - 👀 I’m interested in you
 - 🌱 I’m currently learning everything
-- 💞️ I’m looking to collaborate on true peoples
+- 💞️ I’m looking to collaborating with true peoples
 - 📫 How to reach me @luci_ferr_morningstar_666 on instagram
 
 <!---
